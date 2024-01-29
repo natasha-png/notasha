@@ -1,2 +1,2 @@
 # notasha
-Website repo
+About me: 🫡
